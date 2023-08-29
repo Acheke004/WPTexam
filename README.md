@@ -1,2 +1,1 @@
-# WPTexam
-';'lwkhfkhwecbljwebfcouwerhcnwec
+# WPTe
